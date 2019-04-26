@@ -1,2 +1,2 @@
 # Ohayou-Gojibus
-The definition of failure to impress
+Open mouth, insert foot...
